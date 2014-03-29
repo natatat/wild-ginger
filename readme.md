@@ -1,0 +1,1 @@
+Website for THE Wild Ginger in Cambria, CA.
